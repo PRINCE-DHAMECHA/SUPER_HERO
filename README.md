@@ -1,1 +1,1 @@
-https://prince-dhamecha.github.io/super_hero/
+https://prince-dhamecha.github.io/SUPER-HERO
